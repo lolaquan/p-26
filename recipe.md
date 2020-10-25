@@ -1,0 +1,1 @@
+Preheat the oven to 180C˚. Separate the egg yolk and white. In one bowl, mix the egg white with 25 grams of sugar. In another bowl, mix the rest of the sugar, milk, oil, and flour. Then combine the two mixtures until fully mixed. Pour the mixture in a pan with baking paper. Put it in the oven for 20 to 25 minutes at 180C˚. Finally, it is done.
